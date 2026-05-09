@@ -1,4 +1,4 @@
-### hey, i'm F1aSc0 👾
+### Hey, i'm F1aSc0 👾
 
 software engineering student · based in Kazakhstan  
 building things, breaking things, learning things
